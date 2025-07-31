@@ -114,9 +114,9 @@
 
 For any queries or collaboration opportunities, feel free to connect:
 
-**Name**: Hasitha Reddy  
+**Name**: Vanisha Agrawal  
 **Institute**: Symbiosis Institute of Technology, Pune  
-**Email**: *hasithareddye@gmail.com*
+**Email**: agrawalshruti08052@gmail.com
 
 ---
 
